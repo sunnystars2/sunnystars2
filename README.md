@@ -32,7 +32,7 @@
 
  Racist,etc
 
- Forsaken fandom (unless party)
+ Forsaken fandom (unless I do or party)
 
  Overly sensitive people (A little is ok but only to a extent)
 
