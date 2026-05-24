@@ -10,7 +10,7 @@
 
  Transmasc / AFAB
 
- Will Solace kinnie  (dbls int freely cus irdc but any ships iwc)
+ Will Solace kinnie  (dbls int freely)
 
  Demisexual and bisexual
 
