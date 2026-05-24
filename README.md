@@ -1,4 +1,4 @@
-## Names are Neptune or Sunny  (Or any of my nicknames)
+## Names are Neptune or Sunny
 
 ## Info 
 
